@@ -22,7 +22,16 @@ Mini Itx is aggonazing to build
 A modded nintendo switch can be a good Laptop  
 Most pepole who use windows don't want to use its just what they have  
 Just becuase a sytem can run emulated snes games at 60fps does not mean its a emulation POWER HOUSE  
-Jazz music is best when its played by smaller bands  
+Jazz music is best when its played by smaller bands   
+Mono space fonts are great sytem fonts like `IBM Plex Mono Medm`   
+green kirby is better than pink kirby   
+Yt-dlp is just better than yt-dl _(like seriously why are pepole still saying to get yt-dl)_   
+Keyboard RGB is better static than animated (Tho static is worse if it is all the same color)   
+Keyboards need number pads   
+Pepole who say wine/bottles/_Steam proton_ barrly work have not actully used it   
+Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
+Airpods are over hyped   
+Anything what you intract with once or to change a setting could/should be command-line  
 
 
 <!---
