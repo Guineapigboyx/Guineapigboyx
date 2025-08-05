@@ -26,12 +26,13 @@ Jazz music is best when its played by smaller bands
 Mono space fonts are great sytem fonts like `IBM Plex Mono Medm`   
 green kirby is better than pink kirby   
 Yt-dlp is just better than yt-dl _(like seriously why are pepole still saying to get yt-dl)_   
-Keyboard RGB is better static than animated (Tho static is worse if it is all the same color)   
+Keyboard RGB is better static than animated
 Keyboards need number pads   
 Pepole who say wine/bottles/_Steam proton_ barrly work have not actully used it   
 Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
 Airpods are over hyped   
-Anything what you intract with once or to change a setting could/should be command-line  
+For simple apps a simple confg file is better than in app settings
+Most content can be enjoyed in mono
 
 
 <!---
