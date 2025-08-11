@@ -31,7 +31,7 @@ Keyboards need number pads
 Pepole who say wine/bottles/_Steam proton_ barrly work have not actully used it   
 Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
 Airpods are over hyped   
-For simple apps a simple confg file is better than in app settings
+For simple apps a simple confg file is better than in app settings   
 Most content can be enjoyed in mono
 
 
