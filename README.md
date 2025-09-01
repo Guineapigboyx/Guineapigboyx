@@ -1,4 +1,4 @@
-GEYNEYPIG (´•ᴥ•')
+GENYPIG (´•ᴥ•')
 
 I own 4 guineapigs  
 I like screwing with my computer and laptop a lot.  
