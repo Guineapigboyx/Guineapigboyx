@@ -4,8 +4,9 @@ I own 4 guineapigs
 I like screwing with my computer and laptop a lot.  
 I like overclocking ⚡⏫🔥  
 I like Editing the bios of main PC    
-I got every kirby song ever and put it in one xpsf file and its what i listen to  
-Noctua fans are the best (Yeah dareing i did not put it in a my hot takes)  
+I got every kirby song ever and put it in one xpsf file        
+I primarly listen to Icecast jazz radio    
+Noctua fans are the best (Yeah dareing i did not put it in a my hot takes)
 
 Hot takes: 🖕  
 900p is peak  
@@ -26,7 +27,7 @@ Jazz music is best when its played by smaller bands
 Mono space fonts are great sytem fonts like `IBM Plex Mono Medm`   
 green kirby is better than pink kirby   
 Yt-dlp is just better than yt-dl _(like seriously why are pepole still saying to get yt-dl)_   
-Keyboard RGB is better static than animated
+Keyboard RGB is better static than animated    
 Keyboards need number pads   
 Pepole who say wine/bottles/_Steam proton_ barrly work have not actully used it   
 Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
