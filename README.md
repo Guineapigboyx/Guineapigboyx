@@ -5,13 +5,13 @@ I like screwing with my computer and laptop a lot.
 I like overclocking ⚡⏫🔥  
 I like Editing the bios of main PC    
 I got every kirby song ever and put it in one xpsf file        
-I primarly listen to Icecast jazz radio    
+I primarly listen to Tunein and icecast jazz radio    
 Noctua fans are the best (Yeah dareing i did not put it in a my hot takes)
 
 Hot takes: 🖕  
 900p is peak  
 New Minecraft music is better than old  
-🎮 +🖱 > 🖱+ ⌨️ | in PC games  
+🎮+🖱 > 🖱+⌨️ | in PC games  
 (¬_¬)凸 Mac  
 (ᗒᗜᗕ)っ Linux  
 Win+tab > alt+tab  
@@ -29,11 +29,11 @@ green kirby is better than pink kirby
 Yt-dlp is just better than yt-dl _(like seriously why are pepole still saying to get yt-dl)_   
 Keyboard RGB is better static than animated    
 Keyboards need number pads   
-Pepole who say wine/bottles/_Steam proton_ barrly work have not actully used it   
+Pepole who say wine/bottles/_Steam proton_ barrly works have not actully used it   
 Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
 Airpods are over hyped   
 For simple apps a simple confg file is better than in app settings   
-Most content can be enjoyed in mono
+Most content can be enjoyed in mono audio
 
 
 <!---
