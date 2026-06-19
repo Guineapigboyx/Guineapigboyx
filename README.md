@@ -12,8 +12,9 @@ Hot takes: 🖕
 900p is peak  
 New Minecraft music is better than old  
 🎮+🖱 > 🖱+⌨️ | in PC games  
-(¬_¬)凸 Mac  
-(ᗒᗜᗕ)っ Linux  
+(¬_¬)凸 Windows   
+(◔ ─◔)つ Mac   
+(ᗒᗜᗕ)っ Linux   
 Win+tab > alt+tab  
 Resin printing is stupid (its just too messy and WAY harder to use in general)  
 AI is a tool not a end product  
