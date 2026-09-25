@@ -18,24 +18,22 @@ New Minecraft music is better than old
 Win+tab > alt+tab  
 Resin printing is stupid (its just too messy and WAY harder to use in general)  
 AI is a tool not a end product  
-I enjoy useing the wii u Pro controller  
+I enjoy using the wii u Pro controller  
 Mini Itx is the best form factor for pc cases  
-Mini Itx is aggonazing to build  
-A modded nintendo switch can be a good Laptop  
-Most pepole who use windows don't want to use its just what they have  
-Just becuase a sytem can run emulated snes games at 60fps does not mean its a emulation POWER HOUSE  
+Mini Itx is agonizing to build  
+A modded Nintendo switch can be a good Laptop  
+Most people who use windows don't want to use its just what they have  
+Just because a system can run emulated snes games at 60fps does not mean its a emulation POWER HOUSE  
 Jazz music is best when its played by smaller bands   
-Mono space fonts are great sytem fonts like `IBM Plex Mono Medm`   
+Mono space fonts are great system fonts like `IBM Plex Mono Medm`   
 green kirby is better than pink kirby   
 Yt-dlp is just better than yt-dl _(like seriously why are pepole still saying to get yt-dl)_   
 Keyboard RGB is better static than animated    
 Keyboards need number pads   
-Pepole who say wine/bottles/_Steam proton_ barrly works have not actully used it   
+People who say wine/bottles/_Steam proton_ barely works have not actually used it   
 Waluigi would be lame in smash (100% he would be a ~~echo~~/clone)   
 Airpods are over hyped   
-For simple apps a simple confg file is better than in app settings   
 Most content can be enjoyed in mono audio
-
 
 <!---
 Guineapigboyx/Guineapigboyx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
