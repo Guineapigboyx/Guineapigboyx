@@ -17,7 +17,6 @@ New Minecraft music is better than old
 (ᗒᗜᗕ)っ Linux   
 Win+tab > alt+tab  
 Resin printing is stupid (its just too messy and WAY harder to use in general)  
-AI is a tool not a end product  
 I enjoy using the wii u Pro controller  
 Mini Itx is the best form factor for pc cases  
 Mini Itx is agonizing to build  
